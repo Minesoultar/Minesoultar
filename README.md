@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Minesoultar
-- 👀 I’m interested in computer programming and pc engineering 
+- 👀 I’m interested in computer programming Music & pc engineering 
 - 🌱 I’m currently learning command prommpt
 - 💞️ I’m looking to collaborate on anything i can find to get me up and running
 - 📫 How to reach me Minesoultar@gmail.com
